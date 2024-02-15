@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **beccrenzo@gmail.com**
 
-- ⚡ Fun fact :- I´m also a music Producer and i love to create songs and play the guitar🎵.
+- ⚡ Fun fact :- I´m also a music Producer and i love to create songs and play the guitar🎵. => https://open.spotify.com/intl-es/artist/4iUAsVd71IbjFy8OHHDxeH
 
 <br>
 
